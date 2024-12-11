@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-I guess im supposed to tell something about myself in here? 🤔
+I guess I'm supposed to tell something about myself in here? 🤔
